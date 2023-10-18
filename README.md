@@ -38,5 +38,4 @@ By implementing these measures, we strive to provide precise and reliable ambien
 
 Please feel free to reach out if you have any further questions or require additional information. We are more than happy to assist you.
 [Internship Of Learn Electronics, Electronics Engineer.pdf](https://github.com/MaxWadrin/Learn-Electronics-Internship/files/12064862/Internship.Of.Learn.Electronics.Electronics.Engineer.pdf)
-https://github.com/MaxWadrin/Learn-Electronics-Internship/assets/61119096/424ef22a-e35e-49e2-932d-398ceb702a9d
 
